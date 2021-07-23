@@ -1,1 +1,0 @@
-# Fintech_Project_1-Rental-Income-Home-Evaluator
